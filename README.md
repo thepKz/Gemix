@@ -1,4 +1,4 @@
-# Gemix(高迷克斯) - Đồ Decor và Phụ kiện Gaming Độc Lạ
+# Gemix(尕米寺) - Đồ Decor và Phụ kiện Gaming Độc Lạ
 
 ## Giới thiệu
 **Gemix** là website chuyên cung cấp các sản phẩm đồ decor công nghệ gaming và phụ kiện như tai nghe, loa, màn hình cảm ứng di động, headphone, bàn phím chuột. Các sản phẩm đều được nhập khẩu từ nội địa Trung Quốc với cam kết:
